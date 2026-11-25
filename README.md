@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：上海联通/深圳腾讯云国内中转，Premium TV增加阿里云专线。**
 >
-> 👉 **[官网注册](https://in.mesl.cloud/#/register?code=KWgnAnFS)** · 建议从 Standard TV 100G 的短周期开始，先核对客户端和常用节点。
+> 👉 **[官网注册](https://in.mesl.cloud/#/register?code=2nEH3jIe)** · 建议从 Standard TV 100G 的短周期开始，先核对客户端和常用节点。
 >
 
 >
@@ -69,7 +69,7 @@
 
 ## 注册
 
-👉 **[前往MESL注册页面](https://in.mesl.cloud/#/register?code=KWgnAnFS)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
+👉 **[前往MESL注册页面](https://in.mesl.cloud/#/register?code=2nEH3jIe)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
 
 ## 更新
 
